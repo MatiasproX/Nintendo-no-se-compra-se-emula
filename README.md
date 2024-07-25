@@ -1,0 +1,1 @@
+# Nintendo-no-se-compra-se-emula
